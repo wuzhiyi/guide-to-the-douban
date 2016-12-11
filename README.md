@@ -43,6 +43,9 @@
 - [里氏911](https://www.douban.com/people/68449721/)
 - [嬉皮绅士韦小宝](https://www.douban.com/people/91886435/)
 - [空虚公子](https://www.douban.com/people/70027321/)
+- [tomato熊吉君](https://www.douban.com/people/75704335/)
+- [夜夜夜](https://www.douban.com/people/yeyeyeyyy/)
+- [哀伤宝贝小软软](https://www.douban.com/people/bbmash/)
 
 ##第三章 话痨党
 
