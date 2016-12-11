@@ -32,6 +32,9 @@
 - [阿 璃](https://www.douban.com/people/Swindler/)
 - [S](https://www.douban.com/people/150918974/)
 - [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
+- [小吃店](https://www.douban.com/people/ruye01/)
+- [好饿](https://www.douban.com/people/catherinehman/)
 
 ##第二章 黄图党
 
@@ -40,6 +43,9 @@
 - [里氏911](https://www.douban.com/people/68449721/)
 - [嬉皮绅士韦小宝](https://www.douban.com/people/91886435/)
 - [空虚公子](https://www.douban.com/people/70027321/)
+- [tomato熊吉君](https://www.douban.com/people/75704335/)
+- [夜夜夜](https://www.douban.com/people/yeyeyeyyy/)
+- [哀伤宝贝小软软](https://www.douban.com/people/bbmash/)
 
 ##第三章 话痨党
 
@@ -69,6 +75,7 @@
 - [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
 - [党马╃动物园Ⅶ](https://www.douban.com/people/ChinaHot/)
 - [滕子京](https://www.douban.com/people/fengs/)
+- [帝归](https://www.douban.com/people/unionz/)
 - [周杰伦的小粉丝](https://www.douban.com/people/54883420/) 就是叫兽啦，之前不是叫吴彦祖的么，改名了？
 
 ##第四章 干货党
@@ -83,6 +90,14 @@
 - [联合帝国](https://www.douban.com/people/claymoreteresa/) 历史爱好者，历史照片爱好者
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
 - [饭团](https://www.douban.com/people/fanzeyi/)
+- [羡辙](https://www.douban.com/people/ovilia1024/)
+- [飞林沙](https://www.douban.com/people/lovekym/)
+- [辰光未然](https://www.douban.com/people/monday/)
+- [张佳玮](https://www.douban.com/people/zhangjiawei/)
+- [木遥](https://www.douban.com/people/farmostwood/)
+- [峰哥何峰](https://www.douban.com/people/dianmingshijian/)
+- [Miss power](https://www.douban.com/people/4553925/)
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 - [羡辙](https://www.douban.com/people/ovilia1024/) 前端
 - [飞林沙](https://www.douban.com/people/lovekym/) 
 - [辰光未然](https://www.douban.com/people/monday/) 码农，老婆漂亮
@@ -110,3 +125,4 @@
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
 - [崇子](https://www.douban.com/people/heiheirage/) 潘斯特、达姆、皮亚斯、熊驼创造者，虽然我都没有听过
+
