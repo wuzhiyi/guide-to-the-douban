@@ -32,6 +32,9 @@
 - [阿 璃](https://www.douban.com/people/Swindler/)
 - [S](https://www.douban.com/people/150918974/)
 - [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
+- [小吃店](https://www.douban.com/people/ruye01/)
+- [好饿](https://www.douban.com/people/catherinehman/)
 
 ##第二章 黄图党
 
@@ -69,6 +72,7 @@
 - [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
 - [党马╃动物园Ⅶ](https://www.douban.com/people/ChinaHot/)
 - [滕子京](https://www.douban.com/people/fengs/)
+- [帝归](https://www.douban.com/people/unionz/)
 
 ##第四章 干货党
 
@@ -89,6 +93,7 @@
 - [木遥](https://www.douban.com/people/farmostwood/)
 - [峰哥何峰](https://www.douban.com/people/dianmingshijian/)
 - [Miss power](https://www.douban.com/people/4553925/)
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 
 ##第五章 绘画党
 
