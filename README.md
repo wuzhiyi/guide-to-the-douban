@@ -15,37 +15,50 @@
 3. 只是主观的写写，并不客观公正
 4. 友邻的名字可能会更改，以主页链接为准
 
+PS: 我还想补一些党但是不是很熟，如果有知道的欢迎告知，比如猫党，剁手党，gay 党，丧逼党，抑郁党，精分党，八卦党，知心党？
+
 ##第一章 好看党
 
 好看党里绝对都是好看的，丑的不要，一般去她相册里找找是肯定有货的。不过我现在关注的单纯的好看党不多了，具体原因第二章会说
 
-- [筷喜旺](https://www.douban.com/people/amoyi04/)
-- [猫司令](https://www.douban.com/people/Queenie.Emika/)
+###第一章 女生组
+
 - [Juillet.🌳](https://www.douban.com/people/vip_fiona/)
-- [种大白菜的](https://www.douban.com/people/tsaochen/) 啧啧啧
+- [miaomimi320](https://www.douban.com/people/iloverock/)
+- [S](https://www.douban.com/people/150918974/) 传说中长得好看的程序媛
+- [YLJ](https://www.douban.com/people/irene_jun/) 他老公很帅
+- [阿 璃](https://www.douban.com/people/Swindler/)
+- [啊灼灼](https://www.douban.com/people/62054075/)
+- [大树](https://www.douban.com/people/fandashu/)
+- [好饿](https://www.douban.com/people/catherinehman/)
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
+- [筷喜旺](https://www.douban.com/people/amoyi04/)
+- [馒酱](https://www.douban.com/people/wenlizhou/)
+- [猫司令](https://www.douban.com/people/Queenie.Emika/)
+- [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
+- [杉尼](https://www.douban.com/people/shine_karrey/)
+- [水母](https://www.douban.com/people/sukiss/)
 - [她入葬的晚上](https://www.douban.com/people/tiffanyscode/)
 - [韦思嘉](https://www.douban.com/people/scarlettwei/)
-- [大树](https://www.douban.com/people/fandashu/)
-- [miaomimi320](https://www.douban.com/people/iloverock/)
-- [YLJ](https://www.douban.com/people/irene_jun/)
-- [啊灼灼](https://www.douban.com/people/62054075/)
-- [阿 璃](https://www.douban.com/people/Swindler/)
-- [S](https://www.douban.com/people/150918974/)
-- [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
-- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
+- [我叫卢大胆](https://www.douban.com/people/wanmer/) 偏剁手向，想看大胆真容，你找嘛，去广播相册里找嘛
 - [小吃店](https://www.douban.com/people/ruye01/)
-- [好饿](https://www.douban.com/people/catherinehman/)
+- [种大白菜的](https://www.douban.com/people/tsaochen/) 啧啧啧
+
+###第一章 男生组
+
+- [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
 
 ##第二章 黄图党
 
 其实豆瓣很多女生是很放得开的，很慈悲，经常大晚上来个全裸自拍然后说晚安，比催了半天一张见肉都不发的 ex 暖心多了，但是也不能老是关注她们，有的自拍不多话他妈很多，整天广播里翻来覆去唧唧咋咋也没明白到底想说啥，所以第二阶段推荐一些人肉筛选器，他们会一天 24 小时不间断地刷他们的广播，然后选择不错的内容的转播给大家，内容质量高，欲拒中带点还迎，尤抱中带点琵琶，是居家旅行，必备友邻（不过要关注可得先想好，上班或者公共场合就不太能刷豆瓣了，大老远一看，每个人各忙各的，就你的屏幕上一个屁股，一个美丽的屁股）。
 
+- [tomato熊吉君](https://www.douban.com/people/75704335/)
+- [哀伤宝贝小软软](https://www.douban.com/people/bbmash/)
+- [卷毛的坏蛋](https://www.douban.com/people/xiaxiaodai/)
+- [空虚公子](https://www.douban.com/people/70027321/)
 - [里氏911](https://www.douban.com/people/68449721/)
 - [嬉皮绅士韦小宝](https://www.douban.com/people/91886435/)
-- [空虚公子](https://www.douban.com/people/70027321/)
-- [tomato熊吉君](https://www.douban.com/people/75704335/)
 - [夜夜夜](https://www.douban.com/people/yeyeyeyyy/)
-- [哀伤宝贝小软软](https://www.douban.com/people/bbmash/)
 
 ##第三章 话痨党
 
@@ -82,47 +95,45 @@
 
 干货党里是我以为的，有料的友邻，比方说文学啊，代码啊，历史啥的，一般去日记看看，有的文章不错的，要是没有的话就去看 ta 的广播，大概能隐隐约约感受到 ta 的屌
 
-- [NULLAND](https://www.douban.com/people/nulland/)
-- [年糕](https://www.douban.com/people/heatherheather/) Machine Learning
-- [帝归](https://www.douban.com/people/unionz/)
-- [阿男](https://www.douban.com/people/weinanli/) 
-- [naoko](https://www.douban.com/people/naokouc/)
-- [联合帝国](https://www.douban.com/people/claymoreteresa/) 历史爱好者，历史照片爱好者
-- [宇宙飞行士](https://www.douban.com/people/freecat1992/)
-- [饭团](https://www.douban.com/people/fanzeyi/)
-- [羡辙](https://www.douban.com/people/ovilia1024/)
-- [飞林沙](https://www.douban.com/people/lovekym/)
-- [辰光未然](https://www.douban.com/people/monday/)
-- [张佳玮](https://www.douban.com/people/zhangjiawei/)
-- [木遥](https://www.douban.com/people/farmostwood/)
-- [峰哥何峰](https://www.douban.com/people/dianmingshijian/)
-- [Miss power](https://www.douban.com/people/4553925/)
-- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
-- [羡辙](https://www.douban.com/people/ovilia1024/) 前端
-- [飞林沙](https://www.douban.com/people/lovekym/) 
-- [辰光未然](https://www.douban.com/people/monday/) 码农，老婆漂亮
-- [张佳玮](https://www.douban.com/people/zhangjiawei/) 不要和我讨论文学，我吊起书袋来连我自己都怕
-- [木遥](https://www.douban.com/people/farmostwood/) 文艺标杆，旅行写作拍照
-- [峰哥何峰](https://www.douban.com/people/dianmingshijian/) 简单心理创始人她老公，炫妻狂魔
 - [Miss power](https://www.douban.com/people/4553925/) 冥想，偏玄学
+- [naoko](https://www.douban.com/people/naokouc/)
+- [NULLAND](https://www.douban.com/people/nulland/)
+- [阿男](https://www.douban.com/people/weinanli/) 
+- [辰光未然](https://www.douban.com/people/monday/)
+- [帝归](https://www.douban.com/people/unionz/)
+- [饭团](https://www.douban.com/people/fanzeyi/)
+- [飞林沙](https://www.douban.com/people/lovekym/) 
+- [峰哥何峰](https://www.douban.com/people/dianmingshijian/) 简单心理创始人她老公，炫妻狂魔
+- [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
+- [联合帝国](https://www.douban.com/people/claymoreteresa/) 历史爱好者，历史照片爱好者
+- [么伊凹喵](https://www.douban.com/people/viking_mew_two/) 
+- [木遥](https://www.douban.com/people/farmostwood/) 文艺标杆，旅行写作拍照
+- [年糕](https://www.douban.com/people/heatherheather/) Machine Learning
 - [维舟](https://www.douban.com/people/weizhoushiwang/) 文学，书评
+- [羡辙](https://www.douban.com/people/ovilia1024/) 前端
+- [宇宙飞行士](https://www.douban.com/people/freecat1992/)
+- [张佳玮](https://www.douban.com/people/zhangjiawei/) 不要和我讨论文学，我吊起书袋来连我自己都怕
 
-##第五章 绘画设计党
+##第五章 剁手党
 
-这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情
+- [我叫卢大胆](https://www.douban.com/people/wanmer/)
 
-- [哟大豪爷](https://www.douban.com/people/51665133/) 画风清奇
-- [李苦瓜](https://www.douban.com/people/44179125/)
-- [XMX](https://www.douban.com/people/mushoom-god/) 插画师
+##第六章 艺术党
+
+这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐啥的，只不过这里比较多是大触
+
 - [FAKEWORM](https://www.douban.com/people/weakform/)
-- [深蓝](https://www.douban.com/people/bluezjj/)
-- [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
+- [l ǐ](https://www.douban.com/people/lff121/)
+- [XMX](https://www.douban.com/people/mushoom-god/) 插画师
+- [Yuyii](https://www.douban.com/people/YUYII/)
+- [崇子](https://www.douban.com/people/heiheirage/) 潘斯特、达姆、皮亚斯、熊驼创造者，虽然我都没有听过
 - [過期貓糧](https://www.douban.com/people/catfoodcan/)
 - [花纹](https://www.douban.com/people/alien_/)
-- [Yuyii](https://www.douban.com/people/YUYII/)
-- [l ǐ](https://www.douban.com/people/lff121/)
+- [李苦瓜](https://www.douban.com/people/44179125/)
 - [芈砾](https://www.douban.com/people/43619507/)
-- [熹熹](https://www.douban.com/people/48645578/) 封面设计师
+- [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
-- [崇子](https://www.douban.com/people/heiheirage/) 潘斯特、达姆、皮亚斯、熊驼创造者，虽然我都没有听过
+- [深蓝](https://www.douban.com/people/bluezjj/)
+- [熹熹](https://www.douban.com/people/48645578/) 封面设计师
+- [哟大豪爷](https://www.douban.com/people/51665133/) 画风清奇，总有一张你看了会哈哈大笑的
 
