@@ -58,37 +58,36 @@ PS: 我还想补一些党但是不是很熟，如果有知道的欢迎告知，�
 - [空虚公子](https://www.douban.com/people/70027321/)
 - [里氏911](https://www.douban.com/people/68449721/)
 - [嬉皮绅士韦小宝](https://www.douban.com/people/91886435/)
-- [夜夜夜](https://www.douban.com/people/yeyeyeyyy/)
 
 ##第三章 话痨党
 
 其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人</br>
 另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面肛的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）
 
-- [聊天专用](https://www.douban.com/people/NuclearEngineer/) 
-- [石苏](https://www.douban.com/people/79049984/)
-- [哟大豪爷](https://www.douban.com/people/51665133/)
-- [知心哥哥noly](https://www.douban.com/people/sicker/)
-- [邻家の柠檬叔](https://www.douban.com/people/lemonhall2016/)
-- [雅人叔](https://www.douban.com/people/69521462/)
-- [黄靖昀](https://www.douban.com/people/huangjingyun/)
-- [大菠萝](https://www.douban.com/people/bai_amour/)
-- [切](https://www.douban.com/people/71017473/)
 - [*ST-MachineGUN](https://www.douban.com/people/MachineGun/)
-- [陈哈](https://www.douban.com/people/weiwu/)
-- [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
-- [筷喜旺](https://www.douban.com/people/amoyi04/)
-- [凶兆](https://www.douban.com/people/28336099/)
-- [我初中就一直在练习变成哪吒](https://www.douban.com/people/TVB/)
-- [四不象](https://www.douban.com/people/tabris17/)
-- [寓目](https://www.douban.com/people/46037668/)
 - [leeforce](https://www.douban.com/people/leeforce/)
-- [段子手的章鱼喵](https://www.douban.com/people/emptymalei/)
 - [twotwo](https://www.douban.com/people/GuanRenWoYao/)
-- [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
+- [陈哈](https://www.douban.com/people/weiwu/)
+- [大菠萝](https://www.douban.com/people/bai_amour/)
 - [党马╃动物园Ⅶ](https://www.douban.com/people/ChinaHot/)
-- [滕子京](https://www.douban.com/people/fengs/)
 - [帝归](https://www.douban.com/people/unionz/)
+- [段子手的章鱼喵](https://www.douban.com/people/emptymalei/)
+- [黄靖昀](https://www.douban.com/people/huangjingyun/)
+- [筷喜旺](https://www.douban.com/people/amoyi04/)
+- [聊天专用](https://www.douban.com/people/NuclearEngineer/) 
+- [邻家の柠檬叔](https://www.douban.com/people/lemonhall2016/)
+- [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
+- [切](https://www.douban.com/people/71017473/)
+- [石苏](https://www.douban.com/people/79049984/)
+- [四不象](https://www.douban.com/people/tabris17/)
+- [滕子京](https://www.douban.com/people/fengs/)
+- [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
+- [我初中就一直在练习变成哪吒](https://www.douban.com/people/TVB/)
+- [凶兆](https://www.douban.com/people/28336099/)
+- [雅人叔](https://www.douban.com/people/69521462/)
+- [哟大豪爷](https://www.douban.com/people/51665133/)
+- [寓目](https://www.douban.com/people/46037668/)
+- [知心哥哥noly](https://www.douban.com/people/sicker/)
 - [周杰伦的小粉丝](https://www.douban.com/people/54883420/) 就是叫兽啦，之前不是叫吴彦祖的么，改名了？
 
 ##第四章 干货党
@@ -120,9 +119,10 @@ PS: 我还想补一些党但是不是很熟，如果有知道的欢迎告知，�
 
 ##第六章 艺术党
 
-这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐啥的，只不过这里比较多是大触
+这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐摄影啥的，只不过这里比较多的是大触
 
 - [FAKEWORM](https://www.douban.com/people/weakform/)
+- [HaGaU](https://www.douban.com/people/HaGaU/) ta 有一千零一个相册
 - [l ǐ](https://www.douban.com/people/lff121/)
 - [XMX](https://www.douban.com/people/mushoom-god/) 插画师
 - [Yuyii](https://www.douban.com/people/YUYII/)
@@ -135,5 +135,6 @@ PS: 我还想补一些党但是不是很熟，如果有知道的欢迎告知，�
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
 - [深蓝](https://www.douban.com/people/bluezjj/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
+- [夜夜夜](https://www.douban.com/people/yeyeyeyyy/) 摄影
 - [哟大豪爷](https://www.douban.com/people/51665133/) 画风清奇，总有一张你看了会哈哈大笑的
 
