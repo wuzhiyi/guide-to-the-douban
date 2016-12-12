@@ -19,6 +19,10 @@
 
 PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢迎告知，比如猫党，剁手党，gay 党，啦啦党，丧逼党，抑郁党，精分党，八卦党，知心党？
 
+哦，忘了补[我的豆瓣传送门](https://www.douban.com/people/92955434/)，有任何想补充或者抗议的可以豆油，不约，靴靴
+
+希望大家能慢慢培养适合自己的 timeline
+
 ##第一章 好看党
 
 好看党里绝对都是好看的，丑的不要，一般去她相册里找找是肯定有货的。不过我现在关注的单纯的好看党不多了，具体原因第二章会说。
@@ -48,7 +52,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 - [蕨。](https://www.douban.com/people/Joe./)
 - [凯尔特的海洋](https://www.douban.com/people/Bai911106/)
-- [筷喜旺](https://www.douban.com/people/amoyi04/) 有时候喜旺心情不好的时候来张自拍，搞得大家都很高兴
+- [筷喜旺](https://www.douban.com/people/amoyi04/) 有时候喜旺心情不好的时候来张尺度大的，搞得大家都很高兴
 - [馒酱](https://www.douban.com/people/wenlizhou/)
 - [猫饭嗷地一声](https://www.douban.com/people/cute_ann/)
 - [猫司令](https://www.douban.com/people/Queenie.Emika/)
@@ -60,7 +64,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [水母](https://www.douban.com/people/sukiss/)
 - [她入葬的晚上](https://www.douban.com/people/tiffanyscode/)
 - [甜甜甜甜甜甜甜](https://www.douban.com/people/MissSweety/)
-- [腿稣の强中美](https://www.douban.com/people/JES.MOSS/) 动漫系（希望我没讲错）
+- [腿稣の强中美](https://www.douban.com/people/JES.MOSS/) 动漫系（希望我没讲错），反正是二次元向
 - [韦思嘉](https://www.douban.com/people/scarlettwei/) 混迹时尚圈的清华工科狗（她的签名）
 - [我叫卢大胆](https://www.douban.com/people/wanmer/) 偏剁手向，想看大胆真容，你找嘛，去广播相册里找嘛
 - [小吃店](https://www.douban.com/people/ruye01/)
@@ -93,7 +97,8 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人（当然会有你看他不爽他看你不爽你们互看不爽的，本章树大招风坑比较多，所以... 什么话都不说，这是坠吼的）。</br>
 第三章我想也没想就取名话痨党，因为大家都很有想法且输出功率都比较大，但素这个有点争议，首先很难较真的去定义话痨，另外很多话痨党本身干货也很多，但是为了突出他们对豆瓣特色 sns 路线的贡献，所以单拎一章豆瓣之星，他们都是豆瓣的三个代表，如果他们冷淡或注销了，各位回家搓屌去吧。</br>
 另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面肛的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）。</br>
-这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续搬到指南里的）。
+这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续搬到指南里的，我目前只搬了一个）。</br>
+另外的另外，每当夜深人静独自一人听着音乐蜷缩在被窝，或者因公因私忙碌了大半年才想起来豆瓣，打开电脑打开手机，看到广播里还是那些最熟悉的陌生人在那里孜孜不倦自言自语，那种感觉，熟悉而又温暖。
 
 - [*ST-MachineGUN](https://www.douban.com/people/MachineGun/)
 - [◆ hachi](https://www.douban.com/people/hachinn/)
@@ -155,6 +160,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [小岩井](https://www.douban.com/people/koiwai0908/)
 - [凶兆](https://www.douban.com/people/28336099/)
 - [雅人叔](https://www.douban.com/people/69521462/)
+- [银色bullet](https://www.douban.com/people/yinsebullet/)
 - [哟大豪爷](https://www.douban.com/people/51665133/)
 - [寓目](https://www.douban.com/people/46037668/)
 - [曾良君](https://www.douban.com/people/blacktea077/)
@@ -183,6 +189,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [邻家のR君](https://www.douban.com/people/xudifsd/)
 - [么伊凹喵](https://www.douban.com/people/viking_mew_two/) 
 - [木遥](https://www.douban.com/people/farmostwood/) 文艺标杆，旅行写作拍照
+- [倪湛舸](https://www.douban.com/people/10686358/)
 - [年糕](https://www.douban.com/people/heatherheather/) Machine Learning
 - [羡辙](https://www.douban.com/people/ovilia1024/) 前端
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
@@ -215,7 +222,6 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [花纹](https://www.douban.com/people/alien_/)
 - [李苦瓜](https://www.douban.com/people/44179125/)
 - [芈砾](https://www.douban.com/people/43619507/)
-- [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
 - [深蓝](https://www.douban.com/people/bluezjj/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
@@ -239,6 +245,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 [柠檬叔](https://www.douban.com/people/104099602/status/1926583753/)说了，豆瓣上只有两个党：一个是爱猫党，一个是不那么爱猫党。</br>
 
 - [爱的战士猫小球](https://www.douban.com/people/timeblue/)
+- [困成熊猫](https://www.douban.com/people/amelie421/)
 - [斯弥](https://www.douban.com/people/wanqing0222/statuses)
 
 ##第十章 电影党
