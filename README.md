@@ -6,21 +6,22 @@
 
 在一个阳光明媚的下午，我怎么都睡不着，脑子里有一个声音告诉我，写一个豆瓣漫游指南，豆瓣哪天嗝屁了，也算留个念想。
 
-首先得注册一个豆瓣账号，然后就看有没有什么可以关注的，主要是广播。另外，尽量别让周围认识的人知道自己的这个豆瓣账号。
+首先得注册一个豆瓣账号，然后就看有没有什么可以关注的（本指南为广播流，小组流的套路还未掌握）。另外，尽量别让周围认识的人知道自己的豆瓣账号。
 
 注：
 
 1. 以下所有内容升序排列，且 id 有可能重复，但素有意为之
-2. 如有冒犯，请联系我，我会删改；如因为此文而坏了心情或者感觉被打扰，请联系我，我会删改并道歉
+2. 如有冒犯，请联系我，我会删改；如因此文而坏了心情或者感觉被打扰，请联系我，我会删改并道歉
 3. 只是主观地写写，并不客观公正，不建议咬文嚼字进而站队撕逼，本意只是想作为一个传送门，可根据个人喜好关注
 4. 如果觉得自己（或认识的友邻）很符合某党某组标准，请联系我；如果什么党都不符合但就是想进指南，请联系我
-5. 友邻的名字可能会更改，以主页链接为准
+5. 建议循序渐进地分章关注本指南中的友邻，先把关注了的几个看熟了，人格性别以及长相都能串起来（也不强求，很多友邻性别和长相都藏的很深），再进行下批次的关注
+6. 友邻的名字可能会更改，以主页链接为准
 
 PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢迎告知，比如猫党，剁手党，gay 党，啦啦党，丧逼党，抑郁党，精分党，八卦党，知心党？
 
 ##第一章 好看党
 
-好看党里绝对都是好看的，丑的不要，一般去她相册里找找是肯定有货的。不过我现在关注的单纯的好看党不多了，具体原因第二章会说
+好看党里绝对都是好看的，丑的不要，一般去她相册里找找是肯定有货的。不过我现在关注的单纯的好看党不多了，具体原因第二章会说。
 
 ###好看党 女生组
 
@@ -38,32 +39,35 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [YLJ](https://www.douban.com/people/irene_jun/) 他老公很帅
 - [阿 璃](https://www.douban.com/people/Swindler/)
 - [啊灼灼](https://www.douban.com/people/62054075/)
-- [不是大宝](https://www.douban.com/people/dangdang1014/)
+- [不是大宝](https://www.douban.com/people/dangdang1014/) 就是大宝
 - [大树](https://www.douban.com/people/fandashu/)
 - [咕噜噜](https://www.douban.com/people/120477675/)
 - [光哥哥](https://www.douban.com/people/1971861/)
 - [好饿](https://www.douban.com/people/catherinehman/)
+- [槿](https://www.douban.com/people/38943980/)
 - [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 - [蕨。](https://www.douban.com/people/Joe./)
 - [凯尔特的海洋](https://www.douban.com/people/Bai911106/)
-- [筷喜旺](https://www.douban.com/people/amoyi04/) 有时候喜旺心情不好的时候拍个奶子，搞得大家都很高兴
+- [筷喜旺](https://www.douban.com/people/amoyi04/) 有时候喜旺心情不好的时候来张自拍，搞得大家都很高兴
 - [馒酱](https://www.douban.com/people/wenlizhou/)
 - [猫饭嗷地一声](https://www.douban.com/people/cute_ann/)
 - [猫司令](https://www.douban.com/people/Queenie.Emika/)
 - [喵妮](https://www.douban.com/people/lovejany/)
 - [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
 - [枪](https://www.douban.com/people/niuzi677/)
+- [请叫我秦先生](https://www.douban.com/people/tgeek/)
 - [杉尼](https://www.douban.com/people/shine_karrey/)
 - [水母](https://www.douban.com/people/sukiss/)
 - [她入葬的晚上](https://www.douban.com/people/tiffanyscode/)
 - [甜甜甜甜甜甜甜](https://www.douban.com/people/MissSweety/)
 - [腿稣の强中美](https://www.douban.com/people/JES.MOSS/) 动漫系（希望我没讲错）
-- [韦思嘉](https://www.douban.com/people/scarlettwei/)
+- [韦思嘉](https://www.douban.com/people/scarlettwei/) 混迹时尚圈的清华工科狗（她的签名）
 - [我叫卢大胆](https://www.douban.com/people/wanmer/) 偏剁手向，想看大胆真容，你找嘛，去广播相册里找嘛
 - [小吃店](https://www.douban.com/people/ruye01/)
 - [小茉莉](https://www.douban.com/people/16844432/)
 - [小甜心干了这杯](https://www.douban.com/people/timonin/)
 - [雨天女士藍調](https://www.douban.com/people/leave_left/)
+- [原来是西门大嫂](https://www.douban.com/people/ivy87815/) 好玩不过饺子
 - [張小馋](https://www.douban.com/people/58610246/)
 - [种大白菜的](https://www.douban.com/people/tsaochen/) 啧啧啧，你瞧瞧人家
 
@@ -73,7 +77,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第二章 黄图党
 
-其实豆瓣很多女生是很放得开的，很慈悲，经常大晚上来个全裸自拍然后说晚安，比催了半天一张见肉都不发的 ex 暖心多了，但是也不能老是关注她们，有的自拍不多话他妈很多，整天广播里翻来覆去唧唧咋咋也没明白到底想说啥，所以第二阶段推荐一些人肉筛选器，他们会一天 24 小时不间断地刷他们的广播，然后选择不错的内容的转播给大家，内容质量高，欲拒中带点还迎，尤抱中带点琵琶，是居家旅行，必备友邻（不过要关注可得先想好，上班或者公共场合就不太能刷豆瓣了，大老远一看，每个人各忙各的，就你的屏幕上一个屁股，一个美丽的屁股）。
+其实豆瓣很多女生是很放得开的，很慈悲，经常大晚上来个全裸自拍然后说晚安，比催了半天一张见肉都不发的 ex 暖心多了，但也不能老是关注她们，有的自拍不多话他妈很多，整天广播里翻来覆去唧唧咋咋也没明白到底想说啥，所以第二阶段推荐一些人肉筛选器，他们会一天 24 小时不间断地刷他们的广播，然后选择不错的内容的转播给大家，内容质量高，欲拒中带点还迎，尤抱中带点琵琶，是居家旅行，必备友邻（不过要关注可得先想好，上班或者公共场合就不太能刷豆瓣了，大老远一看，每个人各忙各的，就你的屏幕上一个屁股，一个美丽的屁股）。
 
 - [tomato熊吉君](https://www.douban.com/people/75704335/)
 - [哀伤宝贝小软软](https://www.douban.com/people/bbmash/)
@@ -86,52 +90,69 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第三章 话痨党
 
-其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人</br>
-第三章我想也没想就写个话痨党，因为大家都很有想法且输出功率都比较大，但素这个有点争议，所以也可以自行脑补为豆瓣之星，他们都是豆瓣的三个代表，如果他们冷淡或注销了，各位回家搓屌去吧</br>
-另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面肛的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）</br>
-这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续帮到指南里的）
+其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人（当然会有你看他不爽他看你不爽你们互看不爽的，本章树大招风坑比较多，所以... 什么话都不说，这是坠吼的）。</br>
+第三章我想也没想就取名话痨党，因为大家都很有想法且输出功率都比较大，但素这个有点争议，首先很难较真的去定义话痨，另外很多话痨党本身干货也很多，但是为了突出他们对豆瓣特色 sns 路线的贡献，所以单拎一章豆瓣之星，他们都是豆瓣的三个代表，如果他们冷淡或注销了，各位回家搓屌去吧。</br>
+另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面肛的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）。</br>
+这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续搬到指南里的）。
 
 - [*ST-MachineGUN](https://www.douban.com/people/MachineGun/)
 - [◆ hachi](https://www.douban.com/people/hachinn/)
 - [◆Hardcore](https://www.douban.com/people/46433029/)
 - [29°](https://www.douban.com/people/43079046/)
 - [Chen XY](https://www.douban.com/people/chen78/)
-- [岱尹](https://www.douban.com/people/q---u/)
+- [danyboy](https://www.douban.com/people/danyboy/)
+- [GIF大百科](https://www.douban.com/people/GIFEncyclopedi/)
 - [leeforce](https://www.douban.com/people/leeforce/)
+- [Oosaki nana](https://www.douban.com/people/baby69nye/)
+- [S.](https://www.douban.com/people/lv_zhensheng/)
+- [Sophie Z](https://www.douban.com/people/sophie-z/)
+- [sunshine](https://www.douban.com/people/47969445/) 图党，但不是黄图
 - [twotwo](https://www.douban.com/people/GuanRenWoYao/)
+- [Whale](https://www.douban.com/people/whales/)
+- [阿子](https://www.douban.com/people/pandapie/)
 - [斑陀螺](https://www.douban.com/people/Johnnight/)
 - [本来老六](https://www.douban.com/people/luoying6/)
 - [布鲁托](https://www.douban.com/people/94711202/)
 - [陈哈](https://www.douban.com/people/weiwu/)
 - [大菠萝](https://www.douban.com/people/bai_amour/)
 - [大萌妹买买买](https://www.douban.com/people/renminjiaoshi/)
+- [岱尹](https://www.douban.com/people/q---u/)
 - [党马╃动物园Ⅶ](https://www.douban.com/people/ChinaHot/)
 - [帝归](https://www.douban.com/people/unionz/)
 - [段子手的章鱼喵](https://www.douban.com/people/emptymalei/)
 - [非橙勿扰熊猫饼](https://www.douban.com/people/mrdotmao/)
-- [福根儿](https://www.douban.com/people/fugen/) 福根儿是豆瓣第一生产力
+- [福根儿](https://www.douban.com/people/fugen/) 豆瓣第一生产力
 - [馆君](https://www.douban.com/people/huanglinan/) 豆瓣红娘
+- [洪兴痴汉十三妹](https://www.douban.com/people/harrypotter999/)
 - [欢乐分裂](https://www.douban.com/people/flowermumu/)
 - [黄靖昀](https://www.douban.com/people/huangjingyun/)
 - [饥饿艺术家](https://www.douban.com/people/hackey/)
 - [机智的我](https://www.douban.com/people/mechelangelo/)
 - [江湖鲜有的传说](https://www.douban.com/people/tianyabushiguil/) 美食
+- [局长](https://www.douban.com/people/chunsue/)
 - [开膛手菲欧娜](https://www.douban.com/people/midnight_sun/)
 - [康生](https://www.douban.com/people/eric8686/)
 - [筷喜旺](https://www.douban.com/people/amoyi04/)
 - [聊天专用](https://www.douban.com/people/NuclearEngineer/) 
 - [邻家の柠檬叔](https://www.douban.com/people/lemonhall2016/)
 - [流光溢彩](https://www.douban.com/people/52101570/)
+- [留一手](https://www.douban.com/people/nimamui/)
 - [貓小三的意思其實是如果先生](https://www.douban.com/people/2473154/)
 - [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
+- [你看起来很美味](https://www.douban.com/people/Scarlett1020/)
+- [娘圈圈](https://www.douban.com/people/zeroqq/)
 - [切](https://www.douban.com/people/71017473/)
 - [石苏](https://www.douban.com/people/79049984/)
 - [四不象](https://www.douban.com/people/tabris17/)
 - [苏更生](https://www.douban.com/people/momo713/)
 - [滕子京](https://www.douban.com/people/fengs/)
 - [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
+- [王大根](https://www.douban.com/people/diewithme/)
+- [王小亚](https://www.douban.com/people/wang-xiaoya/) 小组向
 - [我初中就一直在练习变成哪吒](https://www.douban.com/people/TVB/)
 - [我累特](https://www.douban.com/people/jenny107/)
+- [西門澤龍大魔王](https://www.douban.com/people/ximendaxxxx/)
+- [小岩井](https://www.douban.com/people/koiwai0908/)
 - [凶兆](https://www.douban.com/people/28336099/)
 - [雅人叔](https://www.douban.com/people/69521462/)
 - [哟大豪爷](https://www.douban.com/people/51665133/)
@@ -142,12 +163,13 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第四章 干货党
 
-干货党里是我以为的，有料的友邻，比方说编程啊，历史啥的，一般去日记看看，有的文章不错的，要是没有的话就去看 ta 的广播，大概能隐隐约约感受到 ta 的屌
+干货党里是我以为的，有料有专攻的友邻，比方说编程啊，历史啥的，一般去日记看看，有的文章不错的，要是没有的话就去看 ta 的广播，大概能隐隐约约感受到 ta 的屌。
 
 - [Milo](https://www.douban.com/people/miloyip/) 游戏引擎
 - [Miss power](https://www.douban.com/people/4553925/) 冥想，偏玄学
 - [naoko](https://www.douban.com/people/naokouc/)
 - [NULLAND](https://www.douban.com/people/nulland/)
+- [阿北](https://www.douban.com/people/ahbei/)
 - [阿男](https://www.douban.com/people/weinanli/)
 - [八月未央](https://www.douban.com/people/bobye/)
 - [辰光未然](https://www.douban.com/people/monday/)
@@ -168,18 +190,20 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第五章 文学党
 
-- [邓安庆](https://www.douban.com/people/renjiananhuo/) 文学
+- [邓安庆](https://www.douban.com/people/renjiananhuo/)
+- [风行水上](https://www.douban.com/people/1272884/)
 - [沈书枝](https://www.douban.com/people/juzixuancao/)
-- [王路](https://www.douban.com/people/67855900/)
-- [维舟](https://www.douban.com/people/weizhoushiwang/) 文学，书评
+- [王路](https://www.douban.com/people/67855900/) 知道的自然知道，人家是主笔
+- [维舟](https://www.douban.com/people/weizhoushiwang/) 书评
+- [新月](https://www.douban.com/people/sishuinianhua88/) 新美法哲学
 - [野兽爱智慧](https://www.douban.com/people/philosophia1979/) 图书出品人
 - [张佳玮](https://www.douban.com/people/zhangjiawei/) 不要和我讨论文学，我吊起书袋来连我自己都怕
 
-（其实张公子看的书很多的，我尤其喜欢他讲三国）
+（其实张公子看的书很多的，他在知乎上讲三国那是怒罩全场，我点了赞还要点感谢）
 
 ##第六章 艺术党
 
-这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐摄影啥的，只不过这里比较多的是大触
+这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐摄影啥的，只不过这里比较多的是大触。
 
 - [FAKEWORM](https://www.douban.com/people/weakform/)
 - [HaGaU](https://www.douban.com/people/HaGaU/) ta 有一千零一个相册
@@ -195,12 +219,12 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
 - [深蓝](https://www.douban.com/people/bluezjj/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
-- [夜夜夜](https://www.douban.com/people/yeyeyeyyy/) 摄影
+- [伊沙没有被拉](https://www.douban.com/people/loveissa/) 摄影
 - [哟大豪爷](https://www.douban.com/people/51665133/) 画风清奇，总有一张看了会哈哈大笑
 
 ##第七章 剁手党
 
-跟着剁手党买买买啊，本章女生向（求问豆瓣有没有游戏党）
+跟着剁手党买买买啊，本章女生向（求问豆瓣有没有游戏党）。
 
 - [Lacrymosa](https://www.douban.com/people/tanzhe930/)
 - [我叫卢大胆](https://www.douban.com/people/wanmer/)
@@ -212,13 +236,23 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第九章 猫党
 
-[柠檬叔](https://www.douban.com/people/104099602/status/1926583753/)说了，豆瓣豆瓣上只有两个党：一个是爱猫党，一个是不那么爱猫党。</br>
+[柠檬叔](https://www.douban.com/people/104099602/status/1926583753/)说了，豆瓣上只有两个党：一个是爱猫党，一个是不那么爱猫党。</br>
 
+- [爱的战士猫小球](https://www.douban.com/people/timeblue/)
 - [斯弥](https://www.douban.com/people/wanqing0222/statuses)
 
 ##第十章 电影党
 
-单纯电影看的多不逮劲，看的多影评多输出多算是造福吃瓜群众了
+单纯电影看的多不逮劲，看的多影评多输出多才算是造福吃瓜群众了（另外谁知道看过的书啊电影啊是不是瞎鸡巴标的）
 
 - [艾小柯](https://www.douban.com/people/aixiaoke/) 3k
 - [芥末蘸酱](https://www.douban.com/people/FrankWasabi/) 9k
+- [娘圈圈](https://www.douban.com/people/zeroqq/) 1.5k
+- [桃桃淘电影](https://www.douban.com/people/qijiuzhiyue/) 9k
+
+##第十一章 篇尾
+
+感谢所有对该指南的意见者与贡献者，大家共同参与了一件有意思的事（如果希望保持低调可以从下列表单中隐去）
+
+- [善解人衣南小狼](https://www.douban.com/people/southwolf/) 第二章主要贡献者
+
