@@ -108,6 +108,7 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [卷毛的坏蛋](https://www.douban.com/people/xiaxiaodai/)
 - [空虚公子](https://www.douban.com/people/70027321/)
 - [里氏911](https://www.douban.com/people/68449721/)
+- [猎图师](https://www.douban.com/people/86594717/)
 - [鹿丸の伪装](https://www.douban.com/people/kusoing/)
 - [嬉皮绅士韦小宝](https://www.douban.com/people/91886435/)
 - [夜夜夜!](https://www.douban.com/people/3105132/)
@@ -240,6 +241,8 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [倪湛舸](https://www.douban.com/people/10686358/)
 - [年糕](https://www.douban.com/people/heatherheather/) Machine Learning
 - [青（求己）](https://www.douban.com/people/yangharrylg/)
+- [睡沙发の小禹](https://www.douban.com/people/otbzi/)
+- [透明](https://www.douban.com/people/gigix/)
 - [羡辙](https://www.douban.com/people/ovilia1024/) 前端
 - [小鱼是树上妖怪](https://www.douban.com/people/croath/)
 - [云风](https://www.douban.com/people/cloudwu/) 游戏开发
@@ -280,13 +283,14 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 - [三七莲华](https://www.douban.com/people/lotusfire666/) 设计师，水彩厉害
 - [深蓝](https://www.douban.com/people/bluezjj/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
-- [哟大豪爷](https://www.douban.com/people/51665133/) 画风清奇，总有一张看了会哈哈大笑
+- [哟大豪爷](https://www.douban.com/people/51665133/) 集才华与才华于一身的男纸
+- [原画册](https://www.douban.com/people/oalbum/)
 
 ###艺术党 摄影组
 
 - [Casa Nova](https://www.douban.com/people/casa_nova/)
 - [七七](https://www.douban.com/people/nw77/) 人像摄影
-- [伊沙没有被拉](https://www.douban.com/people/loveissa/) 摄影
+- [伊沙没有被拉](https://www.douban.com/people/loveissa/)
 
 ##第七章 猫党
 
@@ -319,7 +323,9 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 
 ##第十章 游戏党
 
+- [Milo](https://www.douban.com/people/miloyip/)
 - [游研社](https://www.douban.com/people/153567501/)
+- [云风](https://www.douban.com/people/cloudwu/)
 
 ##第十一章 丧逼党
 
@@ -330,4 +336,24 @@ PS: 还想补一些党但是目前知道的友邻不多，如果有知道的欢�
 感谢所有对该指南的意见者与贡献者，大家共同参与了一件有意思的事（如果希望保持低调可以从下列表单中隐去）
 
 - __应当事者要求此处隐去__ 第二章主要贡献者
+
+##番外篇 豆瓣小组
+
+你们对力量一无所知。
+
+- [八卦来了](https://www.douban.com/group/blabla/) 豆瓣八组
+- [吃喝玩乐在北京](https://www.douban.com/group/beijing/) 京炮是永远的灯塔
+- [建筑八卦](https://www.douban.com/group/58379/)
+- [景涛咆哮组](https://www.douban.com/group/taotaopaoxiao/?ref=sidebar)
+- [买书如山倒 读书如抽丝](https://www.douban.com/group/buybook/)
+- [史上最沉默小组](https://www.douban.com/group/ShutFuckUp/)
+- [我都被自己感动了，噗~](https://www.douban.com/group/114011/)
+- [我们爱讲冷笑话](https://www.douban.com/group/Gia-club/)
+- [我们就喜欢被女朋友折腾](https://www.douban.com/group/103707/)
+- [我们就喜欢折腾男朋友！](https://www.douban.com/group/Junko520/)
+- [我们什么都知道……一点儿weknooowit](https://www.douban.com/group/spoil/)
+- _远古邪恶家族_
+- _月亮组_
+- [只加入不说话](https://www.douban.com/group/shutthefuckup/)
+- [装逼指南](https://www.douban.com/group/lvguangsenlin/)
 
