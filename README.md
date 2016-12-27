@@ -237,6 +237,7 @@
 - [斑陀螺](https://www.douban.com/people/Johnnight/)
 - [本来老六](https://www.douban.com/people/luoying6/)
 - [布鲁托](https://www.douban.com/people/94711202/)
+- [铲铲](https://www.douban.com/people/xiaochanzi/)
 - [陈哈](https://www.douban.com/people/weiwu/)
 - [大菠萝](https://www.douban.com/people/bai_amour/)
 - [大和田小朋友](https://www.douban.com/people/83155354/)
@@ -317,6 +318,7 @@
 - [小野二](https://www.douban.com/people/73683254/)
 - [凶兆](https://www.douban.com/people/28336099/)
 - [雅人叔](https://www.douban.com/people/69521462/)
+- [鼹鼠的土豆](https://www.douban.com/people/yanshudetudou/)
 - [一片大树林](https://www.douban.com/people/benben861214/)
 - [银谷](https://www.douban.com/people/firo/)
 - [银色bullet](https://www.douban.com/people/yinsebullet/)
@@ -336,16 +338,19 @@
 而且我相信如果你有心的话，可以在其他很多地方见到他们的身影，阿北除外。
 
 - [Ann](https://www.douban.com/people/annzy/)
+- [crusader](https://www.douban.com/people/CrusaderTan/)
 - [Ent](https://www.douban.com/people/pkuent/)
 - [Hertacis](https://www.douban.com/people/wenhuanc/)
 - [Kris™在路上](https://www.douban.com/people/krisontheroad/)
 - [lowdive](https://www.douban.com/people/lowdive/)
 - [M. Tong](https://www.douban.com/people/demon386/)
+- [Mareen](https://www.douban.com/people/2937741/) 服装设计师
 - [Miss power](https://www.douban.com/people/4553925/) 冥想，偏玄学
 - [mlln](https://www.douban.com/people/mlln/) 2016年9月8日广播：再见啦，豆瓣
 - [MrVeritas](https://www.douban.com/people/MrVeritas/)
 - [naoko](https://www.douban.com/people/naokouc/)
 - [NULLAND](https://www.douban.com/people/nulland/)
+- [Tigress (阿狸)](https://www.douban.com/people/OlgaHueng/) 律师
 - [Ür&葭碧](https://www.douban.com/people/Uergaby/)
 - [Vamei](https://www.douban.com/people/ztftom/)
 - [Vigor绵绵熊](https://www.douban.com/people/xiangyi816/)
@@ -371,6 +376,7 @@
 - [么伊凹喵](https://www.douban.com/people/viking_mew_two/) 
 - [木遥](https://www.douban.com/people/farmostwood/) 文艺标杆，旅行写作拍照
 - [倪湛舸](https://www.douban.com/people/10686358/)
+- [年高](https://www.douban.com/people/veragao/)
 - [器具大湿王包皮](https://www.douban.com/people/prepuce/) 情趣向
 - [青（求己）](https://www.douban.com/people/yangharrylg/)
 - [申金土](https://www.douban.com/people/waynechen/) 玄学
@@ -422,6 +428,7 @@
 - [十年木匠](https://www.douban.com/people/ycz/)
 - [水木丁](https://www.douban.com/people/pinkonion/)
 - [松如](https://www.douban.com/people/suzhenshu/)
+- [孙衍](https://www.douban.com/people/yan1912/)
 - [王路](https://www.douban.com/people/67855900/) 知道的自然知道，人家是主笔
 - [王这么](https://www.douban.com/people/madwind/)
 - [蔚蓝](https://www.douban.com/people/xiaoxiaomlove/)
@@ -453,13 +460,15 @@
 
 - [. .. ...](https://www.douban.com/people/nuomamei/)
 - [·金鱼酱·](https://www.douban.com/people/jxplove/)
+- [hosannalau](https://www.douban.com/people/hosannalau/)
 - [l ǐ](https://www.douban.com/people/lff121/)
+- [lost7](https://www.douban.com/people/lost7lost7/) 孤单星球
 - [mochizukikaoru](https://www.douban.com/people/mochizukikaoru/)
 - [sealand](https://www.douban.com/people/65652581/)
 - [weiyi](https://www.douban.com/people/fink/)
 - [XMX](https://www.douban.com/people/mushoom-god/)
 - [Yuyii](https://www.douban.com/people/YUYII/)
-- [崇子](https://www.douban.com/people/heiheirage/) 潘斯特、达姆、皮亚斯、熊驼的设计者，虽然我都没有听过
+- [崇子](https://www.douban.com/people/heiheirage/)
 - [大50000000](https://www.douban.com/people/28506921/)
 - [董事长](https://www.douban.com/people/twentie/) 纹身
 - [贰约—Colorful](https://www.douban.com/people/42267224/)
@@ -468,6 +477,7 @@
 - [花纹](https://www.douban.com/people/alien_/)
 - [李彬BinLee](https://www.douban.com/people/bin12345/)
 - [李苦瓜](https://www.douban.com/people/44179125/)
+- [粒小喵](https://www.douban.com/people/ekamiao/) 动画编剧
 - [林竹](https://www.douban.com/people/linzhu/)
 - [鹿菏](https://www.douban.com/people/mario6688/)
 - [芈砾](https://www.douban.com/people/43619507/)
@@ -479,6 +489,7 @@
 - [时墨](https://www.douban.com/people/shiguangmomo/)
 - [我就不](https://www.douban.com/people/76370921/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
+- [雪風希夏](https://www.douban.com/people/4140096/)
 - [叶纸君](https://www.douban.com/people/leaf0831/)
 - [哟大豪爷](https://www.douban.com/people/51665133/) 集才华与大屌于一身的男纸
 - [游佐中](https://www.douban.com/people/zuoshanweng/)
