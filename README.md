@@ -93,6 +93,7 @@
 - [红豆♥](https://www.douban.com/people/cancermomo/)
 - [欢哥纯爷们](https://www.douban.com/people/hali0509/)
 - [荒木](https://www.douban.com/people/viva-l/)
+- [教主](https://www.douban.com/people/52882108/)
 - [槿](https://www.douban.com/people/38943980/)
 - [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 - [井冈山伯爵](https://www.douban.com/people/141080051/)
@@ -247,6 +248,7 @@
 - [党马╃动物园Ⅶ](https://www.douban.com/people/ChinaHot/)
 - [垫](https://www.douban.com/people/DanP/)
 - [豆瓣吃货](https://www.douban.com/people/GodCookery/)
+- [杜边生](https://www.douban.com/people/darkiddy/)
 - [段子手的章鱼喵](https://www.douban.com/people/emptymalei/)
 - [放置叔](https://www.douban.com/people/hunoz/)
 - [非常不小心](https://www.douban.com/people/fcbuxiaoxin/)
@@ -283,6 +285,7 @@
 - [流光溢彩](https://www.douban.com/people/52101570/)
 - [留一手](https://www.douban.com/people/nimamui/)
 - [楼兰](https://www.douban.com/people/1299702/)
+- [履风之人](https://www.douban.com/people/catmm/)
 - [貓小三的意思其實是如果先生](https://www.douban.com/people/2473154/)
 - [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
 - [猛汉世雄](https://www.douban.com/people/donbou11/)
@@ -369,6 +372,7 @@
 - [荒木](https://www.douban.com/people/viva-l/) 女皮匠
 - [简里里](https://www.douban.com/people/58600475/) 心理咨询
 - [酱油郎独占花魁](https://www.douban.com/people/magicwind/)
+- [锦瑟](https://www.douban.com/people/dqu/) 音乐
 - [锦妖棉花糖](https://www.douban.com/people/vanessa07/) pm + designer
 - [恋爱大王](https://www.douban.com/people/manalindros/) 认知神经
 - [联合帝国](https://www.douban.com/people/claymoreteresa/) 历史爱好者，历史照片爱好者
@@ -395,6 +399,7 @@
 - [Drennuz](https://www.douban.com/people/drennuz/)
 - [Milo](https://www.douban.com/people/miloyip/) 游戏引擎
 - [perfm0n](https://www.douban.com/people/perfm0n/)
+- [withinbeyond](https://www.douban.com/people/withinbeyond/) 矿工
 - [阿男](https://www.douban.com/people/weinanli/)
 - [八月未央](https://www.douban.com/people/bobye/)
 - [白乌鸦](https://www.douban.com/people/baiwuya/)
@@ -433,6 +438,7 @@
 - [王这么](https://www.douban.com/people/madwind/)
 - [蔚蓝](https://www.douban.com/people/xiaoxiaomlove/)
 - [维舟](https://www.douban.com/people/weizhoushiwang/) 书评
+- [无机客](https://www.douban.com/people/tensor/)
 - [新月](https://www.douban.com/people/sishuinianhua88/) 新美法哲学
 - [野兽爱智慧](https://www.douban.com/people/philosophia1979/) 图书出品人
 - [瞻彼](https://www.douban.com/people/mtl/) 思想史
@@ -506,6 +512,7 @@
 - [大丘](https://www.douban.com/people/xiaoqiu-aslan/)
 - [觉 溺](https://www.douban.com/people/sho_chiu/)
 - [七七](https://www.douban.com/people/nw77/) 人像摄影
+- [勤劳de小懒熊](https://www.douban.com/people/benbenbear/) 用心摄影，记录生活点滴
 - [小思](https://www.douban.com/people/think_forever/) 婚礼摄影
 - [伊沙没有被拉](https://www.douban.com/people/loveissa/)
 
@@ -571,6 +578,7 @@
 
 - [陳二](https://www.douban.com/people/suicidepact/)
 - [带我走吧](https://www.douban.com/people/zara1995/)
+- [妈](https://www.douban.com/people/chishiba/)
 - [末 次 月 經](https://www.douban.com/people/nodiamond/)
 
 ##第十三章 修仙党
