@@ -49,6 +49,7 @@
 - [Iris.妙](https://www.douban.com/people/Iris.he/)
 - [Jody](https://www.douban.com/people/suki8875/)
 - [Juillet.🌳](https://www.douban.com/people/vip_fiona/)
+- [LIKA](https://www.douban.com/people/54595749/)
 - [Lyndsy 露](https://www.douban.com/people/lulu920115/)
 - [Lynn](https://www.douban.com/people/46273561/)
 - [miaomimi320](https://www.douban.com/people/iloverock/)
@@ -176,6 +177,7 @@
 
 ###好看党 男生组
 
+- [肆步橡](https://www.douban.com/people/48012654/)
 - [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
 
 ##第二章 黄图党
@@ -439,6 +441,7 @@
 - [蔚蓝](https://www.douban.com/people/xiaoxiaomlove/)
 - [维舟](https://www.douban.com/people/weizhoushiwang/) 书评
 - [无机客](https://www.douban.com/people/tensor/)
+- [夏奈](https://www.douban.com/people/ChannaDisco/)
 - [新月](https://www.douban.com/people/sishuinianhua88/) 新美法哲学
 - [野兽爱智慧](https://www.douban.com/people/philosophia1979/) 图书出品人
 - [瞻彼](https://www.douban.com/people/mtl/) 思想史
@@ -495,6 +498,7 @@
 - [时墨](https://www.douban.com/people/shiguangmomo/)
 - [我就不](https://www.douban.com/people/76370921/)
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
+- [小布老虎有点忙](https://www.douban.com/people/suzieQ/)
 - [雪風希夏](https://www.douban.com/people/4140096/)
 - [叶纸君](https://www.douban.com/people/leaf0831/)
 - [哟大豪爷](https://www.douban.com/people/51665133/) 集才华与大屌于一身的男纸
@@ -533,6 +537,7 @@
 - [花雕蒲烧鲑鱼尾](https://www.douban.com/people/chant-stream/)
 - [困成熊猫](https://www.douban.com/people/amelie421/)
 - [深蓝](https://www.douban.com/people/bluezjj/)
+- [孬爷爷](https://www.douban.com/people/post-rocker/)
 - [四.C](https://www.douban.com/people/jokker/)
 - [斯弥](https://www.douban.com/people/wanqing0222/statuses)
 - [阳哥](https://www.douban.com/people/eeeeek/)
@@ -584,6 +589,10 @@
 ##第十三章 修仙党
 
 道友，修仙不？
+
+###修仙党 道友组
+
+- [芥爲之舟](https://www.douban.com/people/carfield/)
 
 ###修仙党 湿婆组
 
