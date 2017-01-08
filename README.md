@@ -222,6 +222,7 @@
 - [F.F.Chopin](https://www.douban.com/people/mozart1900/)
 - [GIF大百科](https://www.douban.com/people/GIFEncyclopedi/)
 - [H2O.](https://www.douban.com/people/waggawagga/)
+- [KY主创们](https://www.douban.com/people/104562976/) 一图一句话，教你们一点人生经验
 - [leeforce](https://www.douban.com/people/leeforce/)
 - [lisa|离](https://www.douban.com/people/kittielisa/)
 - [Oosaki nana](https://www.douban.com/people/baby69nye/)
@@ -435,6 +436,7 @@
 - [十年木匠](https://www.douban.com/people/ycz/)
 - [水木丁](https://www.douban.com/people/pinkonion/)
 - [松如](https://www.douban.com/people/suzhenshu/)
+- [酸柿子](https://www.douban.com/people/149274706/)
 - [孙衍](https://www.douban.com/people/yan1912/)
 - [王路](https://www.douban.com/people/67855900/) 知道的自然知道，人家是主笔
 - [王这么](https://www.douban.com/people/madwind/)
@@ -472,6 +474,7 @@
 - [hosannalau](https://www.douban.com/people/hosannalau/)
 - [l ǐ](https://www.douban.com/people/lff121/)
 - [lost7](https://www.douban.com/people/lost7lost7/) 孤单星球
+- [Mareen](https://www.douban.com/people/2937741/) 服装设计师
 - [mochizukikaoru](https://www.douban.com/people/mochizukikaoru/)
 - [sealand](https://www.douban.com/people/65652581/)
 - [weiyi](https://www.douban.com/people/fink/)
@@ -500,6 +503,7 @@
 - [熹熹](https://www.douban.com/people/48645578/) 封面设计师
 - [小布老虎有点忙](https://www.douban.com/people/suzieQ/)
 - [雪風希夏](https://www.douban.com/people/4140096/)
+- [洋画梦](https://www.douban.com/people/45865228/)
 - [叶纸君](https://www.douban.com/people/leaf0831/)
 - [哟大豪爷](https://www.douban.com/people/51665133/) 集才华与大屌于一身的男纸
 - [游佐中](https://www.douban.com/people/zuoshanweng/)
@@ -559,6 +563,7 @@
 
 跟着剁手党买买买啊，本章女生向。
 
+- [Hitomiss](https://www.douban.com/people/hitomiss/)
 - [Lacrymosa](https://www.douban.com/people/tanzhe930/)
 - [蒂娜刘](https://www.douban.com/people/yuccaxx/)
 - [芙蕾娅](https://www.douban.com/people/fuleiya1121/)
@@ -570,6 +575,7 @@
 
 - [Milo](https://www.douban.com/people/miloyip/)
 - [大猫咪F](https://www.douban.com/people/felania/)
+- [灭灭](https://www.douban.com/people/houkanshan/)
 - [螃蟹|圣诞老板](https://www.douban.com/people/faceChrist/)
 - [游研社](https://www.douban.com/people/153567501/)
 - [云风](https://www.douban.com/people/cloudwu/)
@@ -585,6 +591,7 @@
 - [带我走吧](https://www.douban.com/people/zara1995/)
 - [妈](https://www.douban.com/people/chishiba/)
 - [末 次 月 經](https://www.douban.com/people/nodiamond/)
+- [丧逼网友张爱财](https://www.douban.com/people/mao0210/)
 
 ##第十三章 修仙党
 
@@ -612,6 +619,7 @@
 
 - [八卦来了](https://www.douban.com/group/blabla/) 豆瓣八组
 - [吃喝玩乐在北京](https://www.douban.com/group/beijing/) 京炮是永远的灯塔
+- [收尸互助小组](https://www.douban.com/group/493023/)
 - [建筑八卦](https://www.douban.com/group/58379/)
 - [景涛咆哮组](https://www.douban.com/group/taotaopaoxiao/?ref=sidebar)
 - [灵异豆瓣](https://www.douban.com/group/tomorrow/?ref=sidebar)
