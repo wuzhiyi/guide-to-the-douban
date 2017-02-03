@@ -25,7 +25,8 @@
 	- 道友组
 	- 湿婆组
 - 第十五章 吃货党
-- 第十六章 篇尾
+- 第十六章 远古邪恶
+- 第十七章 篇尾
 - 番外一篇 豆瓣小组
 - 番外二篇 热门相册
 
@@ -61,8 +62,10 @@
 
 - [.](https://www.douban.com/people/jmr/)
 - [·金鱼酱·](https://www.douban.com/people/jxplove/)
+- [Ася](https://www.douban.com/people/damnh/)
 - [Ada](https://www.douban.com/people/127322937/)
 - [Arch-Murder](https://www.douban.com/people/gaoyaguozhuxi/)
+- [asu](https://www.douban.com/people/asuki/)
 - [bamboo](https://www.douban.com/people/liuxiaobamboo/)
 - [blabababa](https://www.douban.com/people/43595713/)
 - [Cameron_yue](https://www.douban.com/people/cameronz/)
@@ -109,6 +112,7 @@
 - [啊灼灼](https://www.douban.com/people/62054075/)
 - [半身](https://www.douban.com/people/SIOUXSIES/)
 - [宝儿](https://www.douban.com/people/annie552/)
+- [奔奔是个好姑娘](https://www.douban.com/people/xxxx2/)
 - [毕竟Ruby姐](https://www.douban.com/people/ilikejacqueline/) 豆瓣一姐
 - [不加 迪](https://www.douban.com/people/thatgal/)
 - [不是大宝](https://www.douban.com/people/dangdang1014/) 就是大宝
@@ -122,6 +126,7 @@
 - [光哥哥](https://www.douban.com/people/1971861/)
 - [光体](https://www.douban.com/people/dmmmz/)
 - [好饿](https://www.douban.com/people/catherinehman/)
+- [好一个颜狗👀](https://www.douban.com/people/60940772/)
 - [红豆♥](https://www.douban.com/people/cancermomo/)
 - [欢哥纯爷们](https://www.douban.com/people/hali0509/)
 - [荒木](https://www.douban.com/people/viva-l/)
@@ -136,6 +141,7 @@
 - [老去的姜姜](https://www.douban.com/people/Kyou_Kyou/)
 - [乐乐是个大花痴](https://www.douban.com/people/iamsakuragi/)
 - [李哈罗](https://www.douban.com/people/viridianman/)
+- [李吟优](https://www.douban.com/people/49458803/)
 - [栗同学](https://www.douban.com/people/63402858/)
 - [林扁扁](https://www.douban.com/people/50557669/)
 - [林姑娘的林。](https://www.douban.com/people/Jane-L/)
@@ -158,7 +164,9 @@
 - [喵妮](https://www.douban.com/people/lovejany/)
 - [末 次 月 經](https://www.douban.com/people/nodiamond/)
 - [莫莫 。](https://www.douban.com/people/53557727/)
+- [你家牛爷](https://www.douban.com/people/51434827/)
 - [你女票](https://www.douban.com/people/129346634/)
+- [趴行动物](https://www.douban.com/people/84543431/)
 - [派老湿](https://www.douban.com/people/Esther314/)
 - [跑跑跑跑跑啊跑](https://www.douban.com/people/Raininginging/)
 - [其实也没有](https://www.douban.com/people/wangxdloveu/)
@@ -194,10 +202,13 @@
 - [熊猫爷爷](https://www.douban.com/people/langlang1988/)
 - [雪梨](https://www.douban.com/people/Sherry_shiyi/)
 - [岩山石](https://www.douban.com/people/breathing-yan/)
+- [野樱桃](https://www.douban.com/people/yingtao520/)
+- [叶子](https://www.douban.com/people/luoxiaoxiyume/)
 - [以太与二氧化碳](https://www.douban.com/people/69898078/)
 - [影沫](https://www.douban.com/people/zljym/)
 - [雨天女士藍調](https://www.douban.com/people/leave_left/)
 - [原来是西门大嫂](https://www.douban.com/people/ivy87815/) 好玩不过饺子
+- [玥妮莎](https://www.douban.com/people/52024449/)
 - [赟车车](https://www.douban.com/people/60522399/)
 - [藏马夫人](https://www.douban.com/people/AmyTong218/)
 - [泽尻龙儿](https://www.douban.com/people/96969241/)
@@ -273,6 +284,7 @@
 - [阿菲](https://www.douban.com/people/ytdb/)
 - [阿子](https://www.douban.com/people/pandapie/)
 - [艾小玛](https://www.douban.com/people/78088543/)
+- [俺困](https://www.douban.com/people/heyt/)
 - [般若](https://www.douban.com/people/lameizi/)
 - [斑陀螺](https://www.douban.com/people/Johnnight/)
 - [本来老六](https://www.douban.com/people/luoying6/)
@@ -312,6 +324,7 @@
 - [开膛手菲欧娜](https://www.douban.com/people/midnight_sun/)
 - [康生](https://www.douban.com/people/eric8686/)
 - [筷喜旺](https://www.douban.com/people/amoyi04/)
+- [蓝洁瑛](https://www.douban.com/people/141288890/) 不是本人
 - [懒人老猫](https://www.douban.com/people/lazycat_eva/)
 - [狸猫](https://www.douban.com/people/skdleo/)
 - [了了](https://www.douban.com/people/simply8023yoga/)
@@ -328,6 +341,7 @@
 - [貓小三的意思其實是如果先生](https://www.douban.com/people/2473154/)
 - [没头脑也很高兴](https://www.douban.com/people/aiwupian/)
 - [猛汉世雄](https://www.douban.com/people/donbou11/)
+- [迷宝](https://www.douban.com/people/bixiongzz/)
 - [喵古](https://www.douban.com/people/Meow-Gu/)
 - [莫呼洛迦](https://www.douban.com/people/GariberZyo/)
 - [你看起来很美味](https://www.douban.com/people/Scarlett1020/)
@@ -361,6 +375,7 @@
 - [凶兆](https://www.douban.com/people/28336099/)
 - [雅人叔](https://www.douban.com/people/69521462/)
 - [鼹鼠的土豆](https://www.douban.com/people/yanshudetudou/)
+- [妖孽坐地成仙](https://www.douban.com/people/42781255/)
 - [一片大树林](https://www.douban.com/people/benben861214/)
 - [银谷](https://www.douban.com/people/firo/)
 - [银色bullet](https://www.douban.com/people/yinsebullet/)
@@ -368,6 +383,7 @@
 - [哟大豪爷](https://www.douban.com/people/51665133/)
 - [寓目](https://www.douban.com/people/46037668/)
 - [遇颜友止](https://www.douban.com/people/yuyanyouzhi/)
+- [袁长庚](https://www.douban.com/people/yuanchanggeng/)
 - [曾良君](https://www.douban.com/people/blacktea077/)
 - [张卯](https://www.douban.com/people/yesenia1988/)
 - [知心哥哥noly](https://www.douban.com/people/sicker/)
@@ -426,11 +442,14 @@
 - [申金土](https://www.douban.com/people/waynechen/) 玄学
 - [水湄物语](https://www.douban.com/people/foxsshome/) 入市有风险，投资需谨慎
 - [透明](https://www.douban.com/people/gigix/)
+- [王老英雄](https://www.douban.com/people/148322577/)
 - [魏连殳在竹林中](https://www.douban.com/people/lizn007/)
 - [吸土少妇玛丽亚](https://www.douban.com/people/Mariamate/) 提高姿势水平
+- [以吉玩意](https://www.douban.com/people/62310003/) 手工
 - [银河系漫游指南](https://www.douban.com/people/cevia/) 日语
 - [云飞扬](https://www.douban.com/people/ivy_zhang/)
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
+- [资深梦游](https://www.douban.com/people/Rumii/)
 
 ###干货党 coding 组
 
@@ -465,6 +484,7 @@
 - [邓安庆](https://www.douban.com/people/renjiananhuo/)
 - [读首诗再睡觉](https://www.douban.com/people/bedtimepoem/)
 - [风行水上](https://www.douban.com/people/1272884/)
+- [郭敬明](https://www.douban.com/people/32566606/)
 - [苦茶](https://www.douban.com/people/Wangtanzhi/) 经学研究
 - [理性批判](https://www.douban.com/people/thoughts/) 政治学
 - [莫水田](https://www.douban.com/people/58650173/) 孵蛋英文教授
@@ -473,6 +493,7 @@
 - [十年木匠](https://www.douban.com/people/ycz/)
 - [水木丁](https://www.douban.com/people/pinkonion/)
 - [松如](https://www.douban.com/people/suzhenshu/)
+- [苏辛](https://www.douban.com/people/susu0601/)
 - [酸柿子](https://www.douban.com/people/149274706/)
 - [孙衍](https://www.douban.com/people/yan1912/)
 - [王路](https://www.douban.com/people/67855900/) 知道的自然知道，人家是主笔
@@ -508,6 +529,8 @@
 
 - [. .. ...](https://www.douban.com/people/nuomamei/)
 - [·金鱼酱·](https://www.douban.com/people/jxplove/)
+- [ES](https://www.douban.com/people/eseses/) 纹身
+- [goki](https://www.douban.com/people/poppy57/)
 - [hosannalau](https://www.douban.com/people/hosannalau/)
 - [l ǐ](https://www.douban.com/people/lff121/)
 - [lost7](https://www.douban.com/people/lost7lost7/) 孤单星球
@@ -525,6 +548,7 @@
 - [方小孬](https://www.douban.com/people/yuwendizi/)
 - [婠婠](https://www.douban.com/people/78868873/)
 - [過期貓糧](https://www.douban.com/people/catfoodcan/)
+- [核桃](https://www.douban.com/people/queenwalnut/)
 - [花纹](https://www.douban.com/people/alien_/)
 - [李彬BinLee](https://www.douban.com/people/bin12345/)
 - [李苦瓜](https://www.douban.com/people/44179125/)
@@ -603,6 +627,7 @@
 - [cs182](https://www.douban.com/people/mimiefenqiu/)
 - [阿科](https://www.douban.com/people/cyclediary/)
 - [爱的战士猫小球](https://www.douban.com/people/timeblue/)
+- [超高校软体动物](https://www.douban.com/people/sijilao/)
 - [大50000000](https://www.douban.com/people/28506921/)
 - [渡](https://www.douban.com/people/90142764/)
 - [虎妞](https://www.douban.com/people/dahuniu0410/)
@@ -613,6 +638,7 @@
 - [孬爷爷](https://www.douban.com/people/post-rocker/)
 - [四.C](https://www.douban.com/people/jokker/)
 - [斯弥](https://www.douban.com/people/wanqing0222/statuses)
+- [王小喵](https://www.douban.com/people/148322577/)
 - [阳哥](https://www.douban.com/people/eeeeek/)
 - [幽篁](https://www.douban.com/people/youhuang/)
 - [芝霖](https://www.douban.com/people/irisxxx/)
@@ -621,8 +647,10 @@
 
 单纯电影看的多不逮劲，看的多影评多输出多才算是造福吃瓜群众了（另外谁知道看过的书啊电影啊是不是瞎鸡巴标的）
 
+- [frozenmoon](https://www.douban.com/people/1233038/) 高质量影评
 - [艾小柯](https://www.douban.com/people/aixiaoke/) 3k
 - [芥末蘸酱](https://www.douban.com/people/FrankWasabi/) 9k
+- [乐山小佛](https://www.douban.com/people/eason0210/) 4k
 - [米粒](https://www.douban.com/people/conanemily/) 3k
 - [娘圈圈](https://www.douban.com/people/zeroqq/) 1.5k
 - [桃桃淘电影](https://www.douban.com/people/qijiuzhiyue/) 9k
@@ -671,6 +699,7 @@
 
 - [胡诌王子林道长](https://www.douban.com/people/Cossacks/)
 - [芥爲之舟](https://www.douban.com/people/carfield/)
+- [已註銷道長](https://www.douban.com/people/YOYOWILDFOX/)
 
 ###修仙党 湿婆组
 
@@ -682,7 +711,11 @@
 - [街角与后院](https://www.douban.com/people/qhbc/)
 - [凉公子](https://www.douban.com/people/42773853/)
 
-##第十六章 篇尾
+##第十六章 远古邪恶
+
+- [超賤狗逼](https://www.douban.com/people/judgment/)
+
+##第十七章 篇尾
 
 感谢所有对该指南的意见者与贡献者，大家共同参与了一件有意思的事（如果希望保持低调可以从下列表单中隐去）
 
@@ -694,24 +727,25 @@
 你们对力量一无所知。</br>
 尊重他人就是尊重自己，尊重自己就是不鸟他人
 
-- [八卦来了](https://www.douban.com/group/blabla/) 豆瓣八组
-- [吃喝玩乐在北京](https://www.douban.com/group/beijing/) 京炮是永远的灯塔
-- [父母皆祸害](https://www.douban.com/group/Anti-Parents/)
+- [八卦来了](https://www.douban.com/group/blabla/) “八组”
+- [吃喝玩乐在北京](https://www.douban.com/group/beijing/) “京炮组”
+- [父母皆祸害](https://www.douban.com/group/Anti-Parents/) “祸害组”
 - [建筑八卦](https://www.douban.com/group/58379/)
-- [景涛咆哮组](https://www.douban.com/group/taotaopaoxiao/?ref=sidebar)
+- [景涛咆哮组](https://www.douban.com/group/taotaopaoxiao/?ref=sidebar) “咆哮组”
 - [灵异豆瓣](https://www.douban.com/group/tomorrow/?ref=sidebar)
-- [买书如山倒 读书如抽丝](https://www.douban.com/group/buybook/)
-- [请不要害羞](https://www.douban.com/group/haixiuzu/)
-- [收尸互助小组](https://www.douban.com/group/493023/)
+- [买书如山倒 读书如抽丝](https://www.douban.com/group/buybook/) “山倒组”
+- [请不要害羞](https://www.douban.com/group/haixiuzu/) “害羞组”
+- [收尸互助小组](https://www.douban.com/group/493023/) “收尸组”
+- [秃顶会](https://www.douban.com/group/276757/) 我秃了，也变强了
 - [我都被自己感动了](https://www.douban.com/group/114011/)
 - [我们爱讲冷笑话](https://www.douban.com/group/Gia-club/)
 - [我们就喜欢被女朋友折腾](https://www.douban.com/group/103707/)
 - [我们就喜欢折腾男朋友](https://www.douban.com/group/Junko520/)
 - [我们什么都知道一点儿](https://www.douban.com/group/spoil/)
-- [我总觉得自己就是一个傻逼](https://www.douban.com/group/asshole/?ref=sidebar)
-- _远古邪恶家族_
+- [我总觉得自己就是一个傻逼](https://www.douban.com/group/asshole/?ref=sidebar) ”傻逼组“
+- [哇靠这么巧你也来团购啊](https://www.douban.com/group/wakao/) “哇靠组”
 - _月亮组_
-- [装逼指南](https://www.douban.com/group/lvguangsenlin/)
+- [装逼指南](https://www.douban.com/group/lvguangsenlin/) “逼组”
 
 ##番外二篇 热门相册
 
