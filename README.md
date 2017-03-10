@@ -50,7 +50,7 @@
 6. 除了好看党，其余列表中大部分友邻的被关注数都大于 5k（我认为被关注数大于 5k 代表了有一定的影响力以及有一段时间的持续活跃），半年到一年内没更广播的不会挂在指南中
 7. 友邻的名字可能会更改，以主页链接为准
 
-哦，这是[我的豆瓣传送门](https://www.douban.com/people/92955434/)，有任何想补充或者抗议的可以豆油... 因为我也不是一个猥琐的人会一条条广播仔细翻评论，所以有什么意见不 @ 我有可能会看不到。
+另外抱歉，我现在已经不玩豆瓣了，虽然号没注销，有心人有缘人可以 clone 去继续更，本指南应该不会更了。
 
 最后，希望大家能慢慢找到适合自己的 timeline
 
@@ -97,8 +97,10 @@
 - [nanyi](https://www.douban.com/people/muaxinxin/)
 - [nicoooola](https://www.douban.com/people/kwqewdd/)
 - [off](https://www.douban.com/people/63070099/)
+- [Once](https://www.douban.com/people/71412682/)
 - [Panna](https://www.douban.com/people/89018727/)
 - [Peach](https://www.douban.com/people/136925438/)
+- [Phoenix](https://www.douban.com/people/62488498/)
 - [S](https://www.douban.com/people/150918974/) 传说中长得好看的程序媛
 - [Scarlett](https://www.douban.com/people/njuseraph/)
 - [silent](https://www.douban.com/people/lvyonglan/)
@@ -118,6 +120,7 @@
 - [阿司匹林](https://www.douban.com/people/Aspirin1030/)
 - [阿月](https://www.douban.com/people/47357911/)
 - [啊灼灼](https://www.douban.com/people/62054075/)
+- [白玛](https://www.douban.com/people/FuckSmoking/)
 - [半身](https://www.douban.com/people/SIOUXSIES/)
 - [宝儿](https://www.douban.com/people/annie552/)
 - [北漓](https://www.douban.com/people/59098154/) 子望
@@ -144,6 +147,7 @@
 - [槿](https://www.douban.com/people/38943980/)
 - [锦妖棉花糖](https://www.douban.com/people/vanessa07/)
 - [井冈山伯爵](https://www.douban.com/people/141080051/)
+- [九姨太鄭爽醬](https://www.douban.com/people/zhengshuang/)
 - [蕨。](https://www.douban.com/people/Joe./)
 - [凯尔特的海洋](https://www.douban.com/people/Bai911106/)
 - [筷喜旺](https://www.douban.com/people/amoyi04/) 有时候喜旺心情不好的时候来张尺度大的，搞得大家都很高兴
@@ -208,6 +212,7 @@
 - [腿仔骨](https://www.douban.com/people/capricorn_77/)
 - [腿稣の强中美](https://www.douban.com/people/JES.MOSS/) 偏二次元
 - [腿仔骨🌬](https://www.douban.com/people/capricorn_77/)
+- [瓦瓦](https://www.douban.com/people/ClearKing/)
 - [王慧姨](https://www.douban.com/people/53587300/)
 - [王唯一](https://www.douban.com/people/54905017/)
 - [韦思嘉](https://www.douban.com/people/scarlettwei/) 混迹时尚圈的清华工科狗（她的签名）
