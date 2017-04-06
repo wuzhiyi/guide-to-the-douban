@@ -16,7 +16,7 @@
 	- [绘画设计组](#chapter-painting)
 	- [摄影组](#chapter-photo)
 	- [音乐组](#chapter-music)
-- [第七章 建筑党](#chapter-buildling)
+- [第七章 建筑党](#chapter-building)
 - [第八章 猫党](#chapter-cat)
 - [第九章 电影党](#chapter-movie)
 - [第十章 剁手党](#chapter-shopping)
@@ -54,11 +54,13 @@
 
 最后，希望大家能慢慢找到适合自己的 timeline
 
-## 第一章 好看党<a id="chapter-beauty"></a>
+<a id="chapter-beauty"></a>
+## 第一章 好看党
 
 好看党里绝对都是好看的，丑的不要，一般去她相册里找找是肯定有货的。不过我现在关注的单纯的好看党不多了，具体原因第二章会说。
 
-### 好看党 女生组<a id="chapter-female"></a>
+<a id="chapter-female"></a>
+### 好看党 女生组
 
 - [.](https://www.douban.com/people/jmr/)
 - [·金鱼酱·](https://www.douban.com/people/jxplove/)
@@ -253,16 +255,18 @@
 - [周星星](https://www.douban.com/people/evov/)
 - [竹林](https://www.douban.com/people/bamboolingua/)
 
-### 好看党 男生组<a id="chapter-male"></a>
+<a id="chapter-male"></a>
+### 好看党 男生组
 
 - [杜边生](https://www.douban.com/people/darkiddy/)
 - [肆步橡](https://www.douban.com/people/48012654/)
 - [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
 
-## 第二章 黄图党<a id="chapter-exciting"></a>
+<a id="chapter-exciting"></a>
+## 第二章 黄图党
 
-其实豆瓣很多女生是很放得开的，很慈悲，经常大晚上来个全裸自拍然后说晚安，比催了半天一张见肉都不发的 ex 暖心多了，但也不能老是关注她们，有的自拍不多话他妈很多，整天广播里翻来覆去唧唧咋咋也没明白到底想说啥，所以第二阶段推荐一些人肉筛选器，他们会一天 24 小时不间断地刷他们的广播，然后选择不错的内容转播给大家，内容质量高，欲拒中带点还迎，尤抱中带点琵琶，是居家旅行，必备友邻（不过要关注可得先想好，上班或者公共场合就不太能刷豆瓣了，大老远一看，每个人各忙各的，就你的屏幕上一个屁股）。</br>
-非常不建议关注数少于 300 的情况下就一次性添加所有黄图党，你这是玩火知道吗。</br>
+其实豆瓣很多女生是很放得开的，很慈悲，经常大晚上来个全裸自拍然后说晚安，比催了半天一张见肉都不发的 ex 暖心多了，但也不能老是关注她们，有的自拍不多话他妈很多，整天广播里翻来覆去唧唧咋咋也没明白到底想说啥，所以第二阶段推荐一些人肉筛选器，他们会一天 24 小时不间断地刷他们的广播，然后选择不错的内容转播给大家，内容质量高，欲拒中带点还迎，尤抱中带点琵琶，是居家旅行，必备友邻（不过要关注可得先想好，上班或者公共场合就不太能刷豆瓣了，大老远一看，每个人各忙各的，就你的屏幕上一个屁股）。<br/>
+非常不建议关注数少于 300 的情况下就一次性添加所有黄图党，你这是玩火知道吗。<br/>
 黄图党也分左中右，路线不同风格不同，可根据个人喜好和身体状况调整关注。
 
 - [tomato熊吉君](https://www.douban.com/people/75704335/)
@@ -279,12 +283,13 @@
 - [小空空](https://www.douban.com/people/sexymask/)
 - [夜夜夜!](https://www.douban.com/people/3105132/)
 
-## 第三章 话痨党<a id="chapter-balabala"></a>
+<a id="chapter-balabala"></a>
+## 第三章 话痨党
 
-其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人（当然会有你看他不爽他看你不爽你们互看不爽的，本章树大招风坑比较多，所以... 什么话都不说，这是坠吼的）。</br>
-第三章我想也没想就取名话痨党，因为大家都很有想法且输出功率都比较大，但素这个有点争议，首先很难较真的去定义话痨，另外很多话痨党本身干货也很多，但是为了突出他们对建设有豆瓣特色 sns 路线所做出的贡献，所以单拎一章作为豆瓣之光，如果他们都不更了，整个豆瓣活跃度直接少一半（剩下一半有八组撑着）</br>
-另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面刚的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）。</br>
-这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续搬到指南里的，目前只搬了一个）。</br>
+其实这一章就是豆瓣的主旋律，豆瓣的台柱子，豆瓣的价值观，同时也都是在豆瓣上有头有脸且话多的红人（当然会有你看他不爽他看你不爽你们互看不爽的，本章树大招风坑比较多，所以... 什么话都不说，这是坠吼的）。<br/>
+第三章我想也没想就取名话痨党，因为大家都很有想法且输出功率都比较大，但素这个有点争议，首先很难较真的去定义话痨，另外很多话痨党本身干货也很多，但是为了突出他们对建设有豆瓣特色 sns 路线所做出的贡献，所以单拎一章作为豆瓣之光，如果他们都不更了，整个豆瓣活跃度直接少一半（剩下一半有八组撑着）<br/>
+另外推荐一篇文章[豆瓣政治正确不完全指南](https://www.douban.com/note/246007121/)，学习一下，免得和红人正面刚的时候被截图抓出来吊打，当然你要是喜欢被吊打另说（你很有想法）。<br/>
+这里有位先哲整理的[豆瓣达人总结](https://www.douban.com/note/234410655/?type=rec)，里面每个达人作者都有写一些评论，每个人都有 ta 可爱好玩的地方（达人总结里好玩的人我会陆续搬到指南里的，目前只搬了一个）。<br/>
 另外的另外，每当夜深人静独自一人听着音乐蜷缩在被窝，或者因公因私忙碌了大半年才想起豆瓣，打开电脑打开手机，看到广播里还是那些最熟悉的陌生人在那里孜孜不倦地自言自语，那种感觉，熟悉而又温暖。
 
 - [*ST-MachineGUN](https://www.douban.com/people/MachineGun/)
@@ -428,9 +433,10 @@
 - [周杰伦的小粉丝](https://www.douban.com/people/54883420/) 就是叫兽啦，之前不是叫吴彦祖的么，改名了？
 - [猪大勇](https://www.douban.com/people/shushibi/)
 
-## 第四章 干货党<a id="chapter-fuckingGood"></a>
+<a id="chapter-fuckingGood"></a>
+## 第四章 干货党
 
-干货党里是我以为的，有料有专攻的友邻，比方说编程啊，历史啊，学术啥的，一般去日记看看，有的文章不错的，要是没有的话就去看 ta 的广播，大概能隐隐约约感受到 ta 的屌。</br>
+干货党里是我以为的，有料有专攻的友邻，比方说编程啊，历史啊，学术啥的，一般去日记看看，有的文章不错的，要是没有的话就去看 ta 的广播，大概能隐隐约约感受到 ta 的屌。<br/>
 而且我相信如果你有心的话，可以在其他很多地方见到他们的身影，阿北除外。
 
 - [Ann](https://www.douban.com/people/annzy/)
@@ -490,7 +496,8 @@
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
 - [资深梦游](https://www.douban.com/people/Rumii/)
 
-### 干货党 coding 组<a id="chapter-coding"></a>
+<a id="chapter-coding"></a>
+### 干货党 coding 组
 
 - [Casa Nova](https://www.douban.com/people/casa_nova/)
 - [CMGS](https://www.douban.com/people/CMGS/)
@@ -516,7 +523,8 @@
 - [小鱼是树上妖怪](https://www.douban.com/people/croath/)
 - [云风](https://www.douban.com/people/cloudwu/) 游戏开发
 
-## 第五章 文学党<a id="chapter-literature"></a>
+<a id="chapter-literature"></a>
+## 第五章 文学党
 
 - [白鹇](https://www.douban.com/people/leoyin1989/)
 - [长安](https://www.douban.com/people/ANABELLA/) 西班牙语
@@ -549,7 +557,8 @@
 - [张佳玮](https://www.douban.com/people/zhangjiawei/)
 - [哲不解](https://www.douban.com/people/57045505/) 哲学（已基本停更）
 
-## 第六章 艺术党<a id="chapter-art"></a>
+<a id="chapter-art"></a>
+## 第六章 艺术党
 
 这一章纯是个人喜欢，因为我很羡慕画画好的人，我觉得能把自己脑子里的东西落在实处，并且让大家看到而且都觉得好，是件非常美妙的事情，当然也可以是音乐摄影啥的，只不过这里比较多的是大触。
 
@@ -566,7 +575,8 @@
 - [沈入忘](https://www.douban.com/people/ruwang/)
 - [滕比加](https://www.douban.com/people/justxiaoai/)
 
-### 艺术党 绘画设计组<a id="chapter-painting"></a>
+<a id="chapter-painting"></a>
+### 艺术党 绘画设计组
 
 - [. .. ...](https://www.douban.com/people/nuomamei/)
 - [·金鱼酱·](https://www.douban.com/people/jxplove/)
@@ -623,7 +633,8 @@
 - [鸢月堇岚](https://www.douban.com/people/yuanyuejinlan/)
 - [扎扎木](https://www.douban.com/people/zha-zha-mu/)
 
-### 艺术党 摄影组<a id="chapter-photo"></a>
+<a id="chapter-photo"></a>
+### 艺术党 摄影组
 
 - [Casa Nova](https://www.douban.com/people/casa_nova/)
 - [sesame](https://www.douban.com/people/47768870/)
@@ -641,11 +652,13 @@
 - [小思](https://www.douban.com/people/think_forever/) 婚礼摄影
 - [伊沙没有被拉](https://www.douban.com/people/loveissa/)
 
-### 艺术党 音乐组<a id="chapter-music"></a>
+<a id="chapter-music"></a>
+### 艺术党 音乐组
 
 - [李乐为](https://www.douban.com/people/lilewei/)
 
-## 第七章 建筑党<a id="chapter-building"></a>
+<a id="chapter-building"></a>
+## 第七章 建筑党
 
 - [admiringcandle](https://www.douban.com/people/admiringcandle/)
 - [fwb](https://www.douban.com/people/fwb/)
@@ -666,9 +679,10 @@
 - [早](https://www.douban.com/people/za0z/)
 - [左倾份子](https://www.douban.com/people/isa/)
 
-## 第八章 猫党<a id="chapter-cat"></a>
+<a id="chapter-cat"></a>
+## 第八章 猫党
 
-[柠檬叔](https://www.douban.com/people/104099602/status/1926583753/)说了，豆瓣上只有两个党：一个是爱猫党，一个是不那么爱猫党。</br>
+[柠檬叔](https://www.douban.com/people/104099602/status/1926583753/)说了，豆瓣上只有两个党：一个是爱猫党，一个是不那么爱猫党。<br/>
 
 - [Cornetto](https://www.douban.com/people/58663850/)
 - [cs182](https://www.douban.com/people/mimiefenqiu/)
@@ -690,7 +704,8 @@
 - [幽篁](https://www.douban.com/people/youhuang/)
 - [芝霖](https://www.douban.com/people/irisxxx/)
 
-## 第九章 电影党<a id="chapter-movie"></a>
+<a id="chapter-movie"></a>
+## 第九章 电影党
 
 单纯电影看的多不逮劲，看的多影评多输出多才算是造福吃瓜群众了（另外谁知道看过的书啊电影啊是不是瞎鸡巴标的）
 
@@ -704,7 +719,8 @@
 - [xiefei](https://www.douban.com/people/114515320/) 谢飞导演
 - [云飞扬](https://www.douban.com/people/yunfeiyang2046/) 3k
 
-## 第十章 剁手党<a id="chapter-shopping"></a>
+<a id="chapter-shopping"></a>
+## 第十章 剁手党
 
 跟着剁手党买买买啊，本章女生向。
 
@@ -717,7 +733,8 @@
 - [我叫卢大胆](https://www.douban.com/people/wanmer/)
 - [雨天女士藍調](https://www.douban.com/people/leave_left/)
 
-## 第十一章 游戏党<a id="chapter-game"></a>
+<a id="chapter-game"></a>
+## 第十一章 游戏党
 
 - [Milo](https://www.douban.com/people/miloyip/)
 - [大猫咪F](https://www.douban.com/people/felania/)
@@ -726,12 +743,14 @@
 - [游研社](https://www.douban.com/people/153567501/)
 - [云风](https://www.douban.com/people/cloudwu/)
 
-## 第十二章 朋克党<a id="chapter-punk"></a>
+<a id="chapter-punk"></a>
+## 第十二章 朋克党
 
 - [朋克居士大鹏鹏](https://www.douban.com/people/CaoDapeng/)
 - [赟车车](https://www.douban.com/people/60522399/) [她妈是真朋克](https://www.douban.com/doubanapp/dispatch?uri=/status/1886182233/&dt_dapp=1)
 
-## 第十三章 丧逼党<a id="chapter-lossB"></a>
+<a id="chapter-lossB"></a>
+## 第十三章 丧逼党
 
 - [陳二](https://www.douban.com/people/suicidepact/)
 - [带我走吧](https://www.douban.com/people/zara1995/)
@@ -739,40 +758,47 @@
 - [末 次 月 經](https://www.douban.com/people/nodiamond/)
 - [丧逼网友张爱财](https://www.douban.com/people/mao0210/)
 
-## 第十四章 玄学党<a id="chapter-metaphysics"></a>
+<a id="chapter-metaphysics"></a>
+## 第十四章 玄学党
 
 道友，修仙不？
 
-### 修仙党 道友组<a id="chapter-daoFriend"></a>
+<a id="chapter-daoFriend"></a>
+### 修仙党 道友组
 
 - [胡诌王子林道长](https://www.douban.com/people/Cossacks/)
 - [芥爲之舟](https://www.douban.com/people/carfield/)
 - [已註銷道長](https://www.douban.com/people/YOYOWILDFOX/)
 
-### 修仙党 湿婆组<a id="chapter-siva"></a>
+<a id="chapter-siva"></a>
+### 修仙党 湿婆组
 
 - [帝归](https://www.douban.com/people/unionz/)
 
-## 第十五章 吃货党<a id="chapter-eat"></a>
+<a id="chapter-eat"></a>
+## 第十五章 吃货党
 
 - [肥肥鱼](https://www.douban.com/people/feifeiyu/)
 - [街角与后院](https://www.douban.com/people/qhbc/)
 - [凉公子](https://www.douban.com/people/42773853/)
 
-## 第十六章 远古邪恶<a id="chapter-evil"></a>
+<a id="chapter-evil"></a>
+## 第十六章 远古邪恶
 
 - [超賤狗逼](https://www.douban.com/people/judgment/)
 
-## 第十七章 篇尾<a id="chapter-ending"></a>
+<a id="chapter-ending"></a>
+## 第十七章 篇尾
 
 感谢所有对该指南的意见者与贡献者，大家共同参与了一件有意思的事（如果希望保持低调可以从下列表单中隐去）
 
 - __应当事人要求此处隐去__ 第二章主要贡献者
 
-## 番外一篇 豆瓣小组<a id="chapter-group"></a>
+<a id="chapter-group"></a>
+## 番外一篇 豆瓣小组
 
-尊重每个小组的文化与价值观，别他妈吃饱撑着硬去怼，怼就算了，还要去别人家里怼。</br>
-你们对力量一无所知。</br>
+尊重每个小组的文化与价值观，别他妈吃饱撑着硬去怼，怼就算了，还要去别人家里怼。<br/>
+你们对力量一无所知。<br/>
 尊重他人就是尊重自己，尊重自己就是不鸟他人
 
 - [八卦来了](https://www.douban.com/group/blabla/) “八组”
@@ -796,9 +822,10 @@
 - _月亮组_
 - [装逼指南](https://www.douban.com/group/lvguangsenlin/) “逼组”
 
-## 番外二篇 热门相册<a id="chapter-album"></a>
+<a id="chapter-album"></a>
+## 番外二篇 热门相册
 
-喜欢数大于 6k 的相册</br>
+喜欢数大于 6k 的相册<br/>
 另外附上 [豆瓣相册排行榜](https://www.douban.com/note/215456663/)
 
 - [成为大人前，我想记得的小事](https://www.douban.com/photos/album/1633062439/)
