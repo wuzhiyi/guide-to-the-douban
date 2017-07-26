@@ -92,7 +92,7 @@
 - [Lyndsy 露](https://www.douban.com/people/lulu920115/)
 - [Lynn](https://www.douban.com/people/46273561/)
 - [melanie](https://www.douban.com/people/55660976/)
-- [miaomimi320](https://www.douban.com/people/iloverock/)
+- [miaomimi320](https://www.douban.com/people/iloverock/) 传说中长得好看的程序媛
 - [michelle_liu](https://www.douban.com/people/113508506/)
 - [miesenberger](https://www.douban.com/people/Quedate/)
 - [Moony](https://www.douban.com/people/63985391/statuses)
