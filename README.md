@@ -254,6 +254,7 @@
 - [周小菲](https://www.douban.com/people/123982263/)
 - [周星星](https://www.douban.com/people/evov/)
 - [竹林](https://www.douban.com/people/bamboolingua/)
+- [柴郡猫](https://www.douban.com/people/CheshireCatZYY/)
 
 <a id="chapter-male"></a>
 ### 好看党 男生组
@@ -495,6 +496,7 @@
 - [云飞扬](https://www.douban.com/people/ivy_zhang/)
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
 - [资深梦游](https://www.douban.com/people/Rumii/)
+- [liubinyan](https://www.douban.com/people/liubinyan/status/2018736471/)
 
 <a id="chapter-coding"></a>
 ### 干货党 coding 组
