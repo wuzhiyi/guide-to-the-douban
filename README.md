@@ -264,6 +264,7 @@
 - [杜边生](https://www.douban.com/people/darkiddy/)
 - [肆步橡](https://www.douban.com/people/48012654/)
 - [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
+- [ili01](https://www.douban.com/people/43063451/)
 
 <a id="chapter-exciting"></a>
 ## 第二章 黄图党
