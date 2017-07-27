@@ -2,6 +2,8 @@
 
 抱歉，我现在已经不玩豆瓣了，虽然号没注销，有心人有缘人可以 clone 去继续更，本指南应该不会更了。
 
+22接手这个指南啦，会定期更新。
+
 ## 目录
 
 - [第一章 好看党](#chapter-beauty)
@@ -92,7 +94,7 @@
 - [Lyndsy 露](https://www.douban.com/people/lulu920115/)
 - [Lynn](https://www.douban.com/people/46273561/)
 - [melanie](https://www.douban.com/people/55660976/)
-- [miaomimi320](https://www.douban.com/people/iloverock/)
+- [miaomimi320](https://www.douban.com/people/iloverock/) 传说中长得好看的程序媛
 - [michelle_liu](https://www.douban.com/people/113508506/)
 - [miesenberger](https://www.douban.com/people/Quedate/)
 - [Moony](https://www.douban.com/people/63985391/statuses)
@@ -254,6 +256,7 @@
 - [周小菲](https://www.douban.com/people/123982263/)
 - [周星星](https://www.douban.com/people/evov/)
 - [竹林](https://www.douban.com/people/bamboolingua/)
+- [柴郡猫](https://www.douban.com/people/CheshireCatZYY/)
 
 <a id="chapter-male"></a>
 ### 好看党 男生组
@@ -261,6 +264,7 @@
 - [杜边生](https://www.douban.com/people/darkiddy/)
 - [肆步橡](https://www.douban.com/people/48012654/)
 - [童叟无欺熊爷爷](https://www.douban.com/people/pandacry/)
+- [ili01](https://www.douban.com/people/43063451/)
 
 <a id="chapter-exciting"></a>
 ## 第二章 黄图党
@@ -495,6 +499,7 @@
 - [云飞扬](https://www.douban.com/people/ivy_zhang/)
 - [宇宙飞行士](https://www.douban.com/people/freecat1992/)
 - [资深梦游](https://www.douban.com/people/Rumii/)
+- [liubinyan](https://www.douban.com/people/liubinyan/status/2018736471/)
 
 <a id="chapter-coding"></a>
 ### 干货党 coding 组
